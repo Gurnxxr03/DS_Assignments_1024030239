@@ -1,4 +1,4 @@
-Gurnoor Singh<\n>
-1024030239<\n>
-2C18<\n>
-COE<\n>
+Gurnoor Singh
+1024030239
+2C18
+COE
